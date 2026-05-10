@@ -19,7 +19,7 @@ Basic dni criteria
 
 ♡ˎˊInterests
 
-Saiki k, outer banks, toilet bound Hanako-kun, Madoka Magica, I Love Amy, She-Ra, Forsaken, Miraculous Ladybug, Regretevator, Phighting, Jjk, Sonic the Hedgehog, Minesweeper plus, Die of Death, Bungo Stray Dogs, and Lego Monkie King! Fav artists are Lumi Athena, Odetari, Femtanyl, Doja Cat, Kali uchis, Tyler the Creator, Tv Girl, And Kanii! (but i mostly js listen to whatever sounds good)
+Saiki k, outer banks, toilet bound Hanako-kun, Madoka Magica, I Love Amy, She-Ra, Forsaken, Miraculous Ladybug, Beastars, Regretevator, Phighting, Jjk, Sonic the Hedgehog, Minesweeper plus, Die of Death, Bungo Stray Dogs, and Lego Monkie King! Fav artists are Lumi Athena, Odetari, Femtanyl, Doja Cat, Kali uchis, Tyler the Creator, Tv Girl, And Kanii! (but i mostly js listen to whatever sounds good)
 
 ANYWAYS thats it, if I missed anything, you could check my strawpage out! ᐢ..ᐢ TYSMM FOR READING THIS IF U DID
 

@@ -1,5 +1,5 @@
 # 𝚇𝚒𝚘 𝚂𝚑𝚎𝚗𝚊𝚗𝚒𝚐𝚊𝚗𝚜 
-uhhh im rlly bad at doing introductions but heres a few things abt me! (NOTE: most of thse things are listed in my strawpage aswell.)
+uhhh im rlly bad at doing introductions but heres a few things abt me! (NOTE: most of thse things are listed in my strawpage aswell)
 
 ₍^. .^₎⟆ BYI
 
